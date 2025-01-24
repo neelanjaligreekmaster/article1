@@ -1,4 +1,4 @@
-![Virgin Australia Group Booking](file:///C:/Users/Geek%20Master/Downloads/virgin-australia-group-booking-rates-flexible-options-check-in%20(1).webp)
+![Virgin Australia Group Booking](https://github.com/neelanjaligreekmaster/article1/blob/main/virgin-australia-group-booking-rates-flexible-options-check-in%20(1).jpg?raw=true)
 Planning travel for a group of 10 or more people can be complex, but Virgin Australia groups make it incredibly easy. Whether you’re coordinating a family vacation, or a destination wedding, Virgin Australia offers customized group booking solutions with exclusive discounts, flexible options, and dedicated support.
 ## Why Choose Virgin Australia for Group Travel?
 Group travel requires meticulous planning, and Virgin Australia is here to simplify the process. Here are the key benefits of booking your group travel through Virgin Australia:
